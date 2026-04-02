@@ -6,6 +6,7 @@ All files are created and maintained by executioner-Exec.
 
 📱 Contact & Social Media
 	•	Instagram: @bq_jn￼
+	
 	•	Telegram:
 	•	@a7adeeth￼
 	•	@free_black_tools￼
@@ -14,7 +15,9 @@ All files are created and maintained by executioner-Exec.
 
 🌐 My Websites
 	•	🔗 https://full-test.osbvpr.workers.dev
+	
 	•	🔗 https://science-gateway.pages.dev
+	
 	•	🔗 https://mathhub-iq.org
 
 ⸻
