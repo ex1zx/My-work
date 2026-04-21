@@ -5,7 +5,7 @@ All files are created and maintained by executioner-Exec.
 ⸻
 
 📱 Contact & Social Media                     
- •  Instagram: @dev__website
+ •  Instagram: @_ex1zx
  ￼
  •	Telegram:                                 
  1-	@a7adeeth                                ￼
@@ -27,4 +27,4 @@ All files are created and maintained by executioner-Exec.
 
 If you’re interested in building your own website, feel free to reach out:
 
-•	Instagram: @dev__website
+•	Instagram: @_ex1zx
